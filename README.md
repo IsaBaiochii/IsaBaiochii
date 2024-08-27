@@ -19,5 +19,8 @@ RYOIKI TENKAI FUKUMA MIZUSHI
 ![](https://media1.tenor.com/m/AcLRYKN-0hAAAAAC/sukuna-manga.gif)  
 
 
+CAJADO NYOI
+
+![](https://media1.tenor.com/m/b4cfNkHF3f8AAAAC/jujutsu-kaisen-shinjuku-arc-culling-game-arc.gif)
 
 ![](https://media1.tenor.com/m/St4mmHhh2RQAAAAd/gojo.gif)
