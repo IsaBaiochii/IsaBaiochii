@@ -17,3 +17,5 @@ RYOIKI TENKAI FUKUMA MIZUSHI
 
 
 ![](https://media1.tenor.com/m/AcLRYKN-0hAAAAAC/sukuna-manga.gif)
+
+![](https://media1.tenor.com/m/VgQGIDtP6ecAAAAd/jujutsu-kaisen-sukuna.gif)
